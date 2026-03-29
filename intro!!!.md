@@ -1,5 +1,5 @@
 # -novabunnii
-disc user ✦
+disc user ↑ ✦
 ---
 ## ♡ about me ♡
 
