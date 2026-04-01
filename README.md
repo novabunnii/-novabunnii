@@ -11,13 +11,12 @@ he/him/it/they ✦ !!
 <img src="https://github.com/user-attachments/assets/020114b8-0b4b-4638-bd94-585cde67816f" width="110">
 <img src="https://github.com/user-attachments/assets/6e14d3f4-e4fd-4942-aeb9-9cde90a3a5e2" width="110">
 <img src="https://github.com/user-attachments/assets/62b5c4a4-2b42-49c6-b282-aa26240e363f" width="110">
-
 <img src="https://github.com/user-attachments/assets/7103c67e-0da7-460b-b11e-9f4f5145592e" width="110">
-<img src="" width="110">
-<img src="https://github.com/user-attachments/assets/b722ed24-1d67-411e-896a-bd177c017d89" width="110">
-<img src="https://github.com/user-attachments/assets/020114b8-0b4b-4638-bd94-585cde67816f" width="110">
+<img src="https://github.com/user-attachments/assets/6befa8b5-7a61-4922-bf07-c7600868a132" width="110">
+<img src="https://github.com/user-attachments/assets/bb09d296-414c-4366-b7ea-c950585025ad" width="110">
+<img src="https://github.com/user-attachments/assets/2aa9c2ed-2db7-4726-a9b1-050ef136b2f7" width="110">
 <img src="https://github.com/user-attachments/assets/6e14d3f4-e4fd-4942-aeb9-9cde90a3a5e2" width="110">
-<img src="https://github.com/user-attachments/assets/62b5c4a4-2b42-49c6-b282-aa26240e363f" width="110">
+<img src="https://github.com/user-attachments/assets/cafce855-dcff-4ea9-8716-cd53c070345e" width="110">
   
 ## intro
 hi im nova !!
