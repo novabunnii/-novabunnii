@@ -5,7 +5,8 @@ he/him/it/they ✦ !!
 </p>
 
 <p align="center">
-<img src="YOUR-BLINKIE-LINK">
+<img src="https://github.com/user-attachments/assets/cf916a8e-fd7f-4c52-8de8-e721b37a18ef">
+KIE-LINK">
 </p>
 
 ## intro
