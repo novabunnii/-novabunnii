@@ -21,10 +21,16 @@ negativity won't get you pretty far here
 <img src="https://github.com/user-attachments/assets/424b78f3-cf3d-4603-8d82-5a5288ca9bd0" width="110">
   
 >> intro
+⋆ ˖ ࣪
 hi im nova !!
  
 i prefer not to say my age online but i'm somewhere inbetween the 15-18 age range.
 
 artist, writer, & electric guitarist
+
 i have exotic animals, ask 4 more info on ata!
->> 
+
+i'm in plenty of fandoms which i have a tab for :3
+
+sometimes i disappear for a bit but i always come back.
+
