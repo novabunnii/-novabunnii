@@ -21,7 +21,7 @@ pots, autism, adhd, osdd. ect (yes, i am diagnosed.)
 <img src="https://github.com/user-attachments/assets/c2c56e6c-dae9-43c3-924a-a010f5eefda2" width="110">
 <img src="https://github.com/user-attachments/assets/424b78f3-cf3d-4603-8d82-5a5288ca9bd0" width="110">
   
-<p align="center"> > 𝙸𝚗𝚝𝚛𝚘 ! ⋆ ˖ ࣪ 
+<p align="center"> 𝙸𝚗𝚝𝚛𝚘 ! ⋆ ˖ ࣪ 
  
 hi im nova, or koi . !!
  
@@ -35,6 +35,12 @@ i'm in plenty of fandoms which i have a tab for :3
 
 sometimes i disappear for a bit but i always come back.
 
-<p align="center"> DNI
+<p align="center"> 𝙳𝙽𝙸 .
 
-> k,hjhjkhjkl
+proshippers/yumeshippers. i don't have an issue with you guys personally but just don't int w me.
+
+if you're under 13, or above 18.
+
+zoophile, pedophile, racist, homophobic.
+
+if you're someone i used to know, theres a reason why i don't anymore.
