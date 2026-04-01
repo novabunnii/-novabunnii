@@ -1,4 +1,4 @@
-<h1 align="center">nova !!</h1>
+<h1 align="center">ɴᴏᴠᴀ / ᴋᴏɪ !!</h1>
 
 <p align="center">
 he/him/it/they ✦ !!
@@ -35,3 +35,6 @@ i'm in plenty of fandoms which i have a tab for :3
 
 sometimes i disappear for a bit but i always come back.
 
+<p align="center"> DNI
+
+k,hjhjkhjkl
