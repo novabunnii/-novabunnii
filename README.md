@@ -50,6 +50,8 @@ dandy's world fans,,, sorry.
 
 if u romanticize mental health, gtfo. no explanation needed
 
+anything to do with ai. ew.
+
 <p align="center"> 𝙱𝚈𝙸 !!
 
 i AM still a minor.
@@ -61,3 +63,7 @@ i make a lot of kys and dark jokes and use caps ,, gulps.
 i am very awkward and try my best to keep convos going but it doesn't always work out
 
 i am autistic, i may require a bit more reassurance, if you don't like that bai bai !!
+
+i don't condone in harassing someone just to be cool, just block n move on.
+
+i love people who interact, crown me!!!, c+h, or just sit w me in general. just pls don't cover me ! (dnk unless you're close friend, either.)
